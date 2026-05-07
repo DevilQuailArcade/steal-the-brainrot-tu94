@@ -1,4 +1,4 @@
-
+Experience steal the brainrot base like never before with steal the brainrot base ultimate Script, the #1 Script. Includes auto-upgrade and instant
 
 
 
